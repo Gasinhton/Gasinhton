@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Trương_Minh_Nhật
+- 👀 I’m from VietNam
+- 🌱 I’m currently learning C++ and Python
+-  I’m just wanna say HOANG SA TRUONG SA LA CUA VIET NAM 🇻🇳
+- My Facebook is https://m.me/100026636910001ok
